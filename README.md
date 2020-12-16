@@ -1,1 +1,0 @@
-# Shamil Ibrahim k
